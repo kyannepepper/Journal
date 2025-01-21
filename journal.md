@@ -1,0 +1,1 @@
+Date: 1.20.25 - Subject: What I learned today. Don't forget to check when your assignments are due. I realized that I had four assignments that were all due on the same day which was yesterday. Action Items: Never turn something else in late. 
